@@ -14,6 +14,6 @@ I want to be a Graphic Designer, sharing my creativity with the world. I also as
 * Drawing
 
 This is picture of me from last trip to _White Sand Dunes_, _*New Mexico*_
-![Priyanka Jain](https://user-images.githubusercontent.com/36007369/35754600-d4143898-0818-11e8-8e1e-2e7de4a17b9d.JPG)
+![Priyanka Jain](https://user-images.githubusercontent.com/36007369/35755224-37477c02-081b-11e8-97b1-b4c5f6943dd6.jpg)
 
 Check out more about me on [Facebook](https://www.facebook.com/prijain228)
