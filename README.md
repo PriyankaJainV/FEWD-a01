@@ -13,7 +13,7 @@ I want to be a Graphic Designer, sharing my creativity with the world. I also as
 * Listening to music(Sufi and Indi-pop)
 * Drawing
 
-This is picture of me from last trip to _White Sand Dunes_, _*New Mexico*_
+This is picture of me from my last trip to _White Sand Dunes_, _*New Mexico*_
 
 ![Priyanka Jain](https://user-images.githubusercontent.com/36007369/35755224-37477c02-081b-11e8-97b1-b4c5f6943dd6.jpg)
 
